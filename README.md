@@ -28,7 +28,7 @@ WoL/G'raha ✧ Sonadow ✧ Chocobros ✧ Akira/Ryo
 Ask, for the others, if you really want.
 
 *I do not ship Nuzi ·
-manor Tessa is my daughter and must be protected at all costs*
+manor Tessa is the sweetest girl and i love her to bits*
 
 ─────── ⋆ ───────
 
