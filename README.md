@@ -28,7 +28,7 @@ Please, if you cannot hold an adult conversation and/or discussion without behav
 
 ### fandoms
 
-Murder Drones ✧ FFXIV ✧ FFXV ✧ Sonic
+Murder Drones ✧ FFXIV ✧ FFXV ✧ Sonic ✧
 Devilman ✧ Black Jack ✧ Evangelion ✧ Akira
 
 ### ships
